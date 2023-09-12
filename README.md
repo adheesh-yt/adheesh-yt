@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @adheesh-yt
+- 👀 I’m interested in coding and os devlopment
+- 🌱 I’m currently learning how to make an os
+- 💞️ I’m looking to collaborate on osfirsttimer
+- 📫 I am from india and contact me on 8986129744
+- 🤝 i would like to be allyed with teamwin
